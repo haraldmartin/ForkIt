@@ -15,14 +15,12 @@ Ingredients
 
 Instructions
 --------------------------------------------------------------------------------
-** day 1 evening: **
+day 1 evening:
 * mix all yeast and wet ingredients in a large bowl until the yeas is dissolved.
 * add the rest of the dry ingredients an mix for about 5 minutes or until your arm hurts. 
 * cover with the bowl and leave in room temperature over night about 7-10 hours.
 
-
-
-** day 2 morning: **
+day 2 morning:
 * pour/slide out the dough on a well flowered surface.
 * with well flowered hands and gently stretch each and fold each side the dough in on its self.
 * cut in half and stretch inte two baguette shaped bred
